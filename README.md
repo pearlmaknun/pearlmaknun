@@ -1,7 +1,7 @@
 ### 🦪 Hi there, I'm Lu'lu' Al-Maknun <img src="https://media.giphy.com/media/Cmr1OMJ2FN0B2/giphy.gif" width="36px">
 <!-- <img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="25px"> -->
 
-I’m currently working on my future 😉 and I’m currently learning everything I thought i need 😇.
+I’m currently working on my self, HAHA! 😉 and I’m currently learning everything I thought i need 😇.
 <br/>
 
 ### Languages and Tools:
